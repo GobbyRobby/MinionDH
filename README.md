@@ -1,2 +1,2 @@
-# MinionDH
-Repozytorium mnie. Zakaz XC.
+# MinionDHftw
+Zakaz XC i batmana
