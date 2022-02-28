@@ -1,2 +1,2 @@
 # MinionDHftw
-Zakaz XC i batmana
+Zakaz XC i batmana xd
